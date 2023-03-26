@@ -5,8 +5,8 @@ Worked in a team to analyze a restaurant business and identify opportunities to 
  
 Key skills developed:
 
-Market research and analysis
-Interviewing and communication skills
-Problem-solving and critical thinking
-Teamwork and collaboration
+Market research and analysis,
+Interviewing and communication skills,
+Problem-solving and critical thinking,
+Teamwork and collaboration,
 Presentation and report writing
